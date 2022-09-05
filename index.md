@@ -14,7 +14,7 @@ Join our [Discord](https://discord.com/invite/djnY9MP8nN)!
 - Each play through to feel unique
 - Shop Cat
 
-## Look for Me, My Mech and I on Steam Early access Summer 2022
+## Look for Me, My Mech and I on Steam Early access Summer 2023
 
 ![Screenshot](shop_cat_300.png)
 
